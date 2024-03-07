@@ -1,3 +1,3 @@
 # inf-prezentacja
 
-link [prezentacja](https://www.canva.com/design/DAF-F_92G1o/V9iAHq_Stos8J1uPZBuv_w/view?utm_content=DAF-F_92G1o&utm_campaign=designshare&utm_medium=link&utm_source=editor)
+link [prezentacja](https://gim3olsztyn-my.sharepoint.com/:p:/g/personal/krzysztof_skorzynski_cyfroweszkoly_pl/EYvwuBHRJa1ChEe0SSBQ2JMB6QOHwMSGM19A8ZsWfwjCew?e=FdbNgL)
